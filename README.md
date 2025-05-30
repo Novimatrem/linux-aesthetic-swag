@@ -1,0 +1,1 @@
+![https://gitlab.com/Novimatrem/linux-aesthetic-swag/-/raw/main/scrot.png](https://gitlab.com/Novimatrem/linux-aesthetic-swag/-/raw/main/scrot.png "https://gitlab.com/Novimatrem/linux-aesthetic-swag/-/raw/main/scrot.png")
